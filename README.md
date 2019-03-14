@@ -5,6 +5,6 @@ have to go through all the folders.
 I will continue to add more projects.
 
 Comment if you have any suggestions 
-or questions on the programs.
+or questions on the codeor have any advice.
 
 Thank you.
